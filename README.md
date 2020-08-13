@@ -1,2 +1,1 @@
-# Onsurity
-Onsurity is a healthtech and employee benefits organization, working towards enabling employers and employees with our comprehensive health packages. As a company we are delivering healthcare to organizations and their employees. As a brand we are strengthening relations between employers and their teams, accelerating organizational growth. Our vision is to create simplified healthcare products for those with limited access to them. And, we plan to do so with our all-round healthcare technology and reliable customer service. 
+
